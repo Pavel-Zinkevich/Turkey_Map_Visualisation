@@ -11,7 +11,7 @@
 > Ülkemizde çeşitli bölgelerdeki yabancı yoğunluğu göz önünde bulundurularak Bakanlığımızca daha önce belirli illerimizdeki 781 mahalle yeni doğan ve çekirdek aile birleşimi dışında geçici koruma kaydına, uluslararası koruma kaydına, ikamet iznine, geçici koruma veya uluslararası koruma ile ikamet izni kapsamındaki yabancıların ikamet ili değişikliği yapılması işlemlerine kapatılmıştır.  
 > 1 Temmuz 2022 itibariyle kapalı mahalle sayısı 1169’a çıkarılmış olup kapalı mahalleler ekte yer almaktadır.
 
-Полный список районов доступен в приложенном файле: [Kapalı Mahaller (50 KB)](ссылка_на_файл)
+Полный список районов доступен в приложенном файле: [Kapalı Mahaller (50 KB)](https://www.goc.gov.tr/kurumlar/goc.gov.tr/DUYURULAR/2022/06-Haziran/UK/Kapali_Mahalleler-_31082022_.xlsx)
 
 ---
 
